@@ -1,3 +1,4 @@
+![IMG_20230222_111058~2](https://github.com/kasshf/Kasshf/assets/154363620/1c5fcede-c42d-4766-b801-78c0c46a56ac)
 ### Hi there 👋
 
 <!--
